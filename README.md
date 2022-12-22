@@ -29,7 +29,9 @@ Projetos <br>
 Site Barbearia Corte fino - Cambe - PR 98% <br>
 Site barbearia Santo Corte - Sao Jose do Rio preto - SP - 0% Iniciando<br>
 Portifolio Pessoal - 50% <br>
+projeto Imperio informatica - finalizado <br>
 LandPage Camisa de Time - 70% <br>
 Links em breve !.. <br>
+
 
 Fique Avontade ! 
